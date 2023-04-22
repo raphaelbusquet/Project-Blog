@@ -1,4 +1,4 @@
-## Personal Blog 
+## Project Blog 
 
 #### To view click on the link below: 
 
